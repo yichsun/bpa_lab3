@@ -1,2 +1,0 @@
-Yichen Sun
-CUBS
